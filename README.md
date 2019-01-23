@@ -11,3 +11,9 @@ Serie de recursos y contenido de Blockchain en español
 ## Comunidades en español
 
 * [BlockChain Mexico](https://www.facebook.com/groups/blockchaindes)
+
+## Canales de Youtube
+
+## Listas de Reproduccion
+
+## Articulos Academicos
